@@ -9,5 +9,14 @@ If you are interested with the work I did, you can sponsor me through following 
 One time sponsor via Alipay or WeChat Pay.
 
 | ![Alipay](https://img.tanknee.cn/blogpicbed/2021/07/17/20210717b235e97de6716.png) | ![WeChat Pay](https://img.tanknee.cn/blogpicbed/2021/07/17/20210717f4742af26922c.png) |
-| --- | --- |
-| Alipay | WeChat Pay |
+| ------------------------------------------------------------ | ------------------------------------------------------------ |
+| Alipay                                                       | WeChat Pay                                                   |
+
+---
+
+| 赞赏者（Sponsor） | 金额（￥） |
+| ----------------- | ---------- |
+| y*g.              | 6.60       |
+| 张*豪             | 100.00     |
+| **夫              | 14.00      |
+
